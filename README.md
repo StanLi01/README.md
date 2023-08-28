@@ -15,5 +15,3 @@
 📄 Follow my journey (https://www.linkedin.com/in/stanley-osondu-74b140144/)
 
 ⚡ Hobbies: Football, Travel
-
-# ***Connect With Me***
